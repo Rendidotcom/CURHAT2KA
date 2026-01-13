@@ -1,1 +1,1 @@
-# CURHAT2KA
+# CURHAT-7C
